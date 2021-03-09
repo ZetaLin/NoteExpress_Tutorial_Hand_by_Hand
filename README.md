@@ -34,7 +34,7 @@
 
 ### 3. 资源下载
 
-- [手把手教你使用NoteExpress-3.2 PDF版](https://wwi.lanzous.com/iOGA3mp6y6d) | [NoteExpress-Windows](https://wwi.lanzous.com/iyT3Rmp8f4j) 
+- [手把手教你使用NoteExpress-3.2 PDF版](https://wwi.lanzous.com/iuhDWmql38f) | [NoteExpress-Windows](https://wwi.lanzous.com/iyT3Rmp8f4j) 
 
 - GB/T 7714-2015 《信息与文献 参考文献著录规则》带书签可复制版: [GB/T 7714-2015 《信息与文献 参考文献著录规则》](https://wwi.lanzous.com/iojMCmp73vi)
 
